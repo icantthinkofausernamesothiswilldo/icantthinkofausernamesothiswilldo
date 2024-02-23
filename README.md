@@ -1,0 +1,7 @@
+- 👋 hello
+- 👀 i’m interested in learning to actually code at all
+- 🌱 i’m currently learning nothing
+- 💞️ i’m looking to collaborate on something
+- 📫 how to reach me: don't until i find out a way i'm comfortable with
+- 😄 pronouns: he,him
+- ⚡ fun fact: the narwhal horn is a tooth
